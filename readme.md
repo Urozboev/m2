@@ -1,6 +1,6 @@
-# DARS UCHUN YOZIB QO'YILDI
+# O'rozboyev Mirjalol
 
-Zafar Bo'stonqulov
-
-Bu mobil ilovani o'rnatish uchun quyidagi havolani bosing
-
+Bu loyiha o'zim uchun qilingan portfolio sahifam 
+Men bilan bog'lanish:
+📱 +998970201343
+📧 mirjalol0406@gmail.com
